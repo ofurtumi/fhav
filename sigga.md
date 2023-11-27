@@ -1,0 +1,6 @@
+- við eigum að leyfa hugmyndunum okkar að deyja
+- hugmyndarferlið er ekki eins fyrir alla
+- við eigum að reyna fá álit frá mismunandi fólki
+- hægt að teikna rosa mikið af hlutum sem eru hringir
+- það er hægara sagt en gert að hrósa fólki sem maður umgengst
+- byko selur mjög góðan pappír ódýrt
